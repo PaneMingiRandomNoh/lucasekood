@@ -1,0 +1,2 @@
+# lucasekood
+Vinge kood
